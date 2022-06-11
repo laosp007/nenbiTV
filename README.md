@@ -2,9 +2,9 @@
 
 ##### 😎😎最新发布地址😎😎
 
-##### ❤️ 👉 【地址一】 ：https://nbtv.xyz
+##### ❤️ 👉 【地址一】 ：https://qq.com.lsbs-fby.xyz
 
-##### ❤️ 👉 【地址二】 ：https://nbtv01.xyz
+##### ❤️ 👉 【地址二】 ：https://qq.com.fcsp-fby.club
 
 ##### ❤️ 👉 【邮箱联系方式】 ：woshilsp007@gmail.com
 
