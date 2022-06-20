@@ -2,7 +2,7 @@
 
 ##### 😎😎最新发布地址😎😎
 
-##### ❤️ 👉 【地址一】 ：https://lsbs.xyz
+##### ❤️ 👉 【地址一】 ：https://qq.com.fcsp.club
 
 ##### ❤️ 👉 【地址二】 ：https://qq.com.fcsp-fby.club
 
